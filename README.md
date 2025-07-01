@@ -1,4 +1,4 @@
-# Best NSFW Character AI Alternatives With No Filter
+# Best NSFW Character AI Alternatives With No Filters
 Here is a list of the best character ai alternatives that have no filter.
 
 ## NSFW Character AI Alternatives
